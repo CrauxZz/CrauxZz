@@ -6,7 +6,7 @@
 
 💞️ I'm looking to collaborate on projects related to game development, film production, digital art, 3D art, and animation. I'm always open to learning new things and expanding my skill set.
 
-📫 You can contact me via email at crauxzz@gmail.com or through my social media:<br>
+📫 You can contact me via email at javorob@protonmail.com or through my social media:<br>
 Instagram: https://www.instagram.com/javorob_art/ (for digital art and illustration enthusiasts)<br>
 Artstation: https://www.artstation.com/javorob (to showcase my full portfolio to other digital artists, video game, and film companies)<br>
 Behance: https://www.behance.net/javorobles (to present my work to graphic designers and advertisers)<br>

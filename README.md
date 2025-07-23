@@ -1,6 +1,6 @@
 ## Álvaro Javier Robles Guzmán  
 **3D artist | Game Dev | BackEnd Dev**  
-`📧` javoro25@outlook.com | `📱` +57 3058943198 | `🎨` [Portfolio](https://linktr.ee/javorob)  
+`📧` javoro25@outlook.com | `📱` +57 3058943198 | `🎨` [Portfolio](https://linktr.ee/javorob)  | BluePrints(https://blueprintue.com/profile/javoro25/)
 
 ---
 
